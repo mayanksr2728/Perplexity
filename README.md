@@ -1,2 +1,2 @@
-# Perplexity
-MAYANK AND NAITIK
+MAYANKS SINGH
+Mayank Singh is a chair and working member of the International Parkinson's and Movement Disorder Society, Milwaukee, Wisconsin, US. Along with IPMDS, he's a contributing member of American Association of Cancer Research and Royal Microscopical Society. He's research expertise lies in radiation physics and radiation biology where he's being part of top 75 young fellow researchers in radiation biology in RRS (Radiation Research Society). He have published 4 research papers in radiation biology concentrated at P53 genes and FLASH Therapy. He's currently pursuing dual degree in Medical Science and Artificial Intelligence & Machine Learning.
